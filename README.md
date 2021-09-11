@@ -7,8 +7,8 @@ You can reach me on:
 
   YouTube: https://bit.ly//3wRMcet
   
-  Discord: Kartonek#0002
-  
   Steam: https://teamcommunity.com/id/orginalny_karton/
   
   Gmail: kartofelekspioszek@gmail.com
+
+  Discord: https://discord.gg/6JBnwBt8Ty, Kartonek#0002
