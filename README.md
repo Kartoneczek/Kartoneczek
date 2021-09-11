@@ -1,5 +1,5 @@
 Hi, I’m @Kartoneczek. I’m interested in GameDev.
-I just started learning about progaming
+I just started learning about progaming.
 
 You can reach me on:
 
