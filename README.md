@@ -5,10 +5,10 @@ You can reach me on:
 
   GitHub: https://github.com/Kartoneczek
 
-  YouTube: https://bit.ly//3wRMcet
+  YouTube: https://www.youtube.com/channel/UCdigFyMlebMrLbPQI0iFREw/featured
   
   Steam: https://teamcommunity.com/id/orginalny_karton/
   
   Gmail: kartofelekspioszek@gmail.com
 
-  Discord: https://discord.gg/6JBnwBt8Ty, Kartonek#0002
+  Discord: , Kartonek#7526
